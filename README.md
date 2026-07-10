@@ -1,3 +1,4 @@
+<img width="904" height="720" alt="gif-ezgif com-video-to-gif-converter" src="https://github.com/user-attachments/assets/329bd578-efe1-4c64-b70e-1b0d300dcaa1" />
 # JEJUMDEDANIELJULHO2026
 <img width="1084" height="733" alt="EMAIL;_08" src="https://github.com/user-attachments/assets/90970372-e530-4150-89a5-9fabdeb56ee8" />
 <img width="1084" height="757" alt="EMAIL;_07" src="https://github.com/user-attachments/assets/51c45ce0-0601-4517-af3d-bf504a3db94f" />
