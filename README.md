@@ -1,4 +1,4 @@
-<img width="1084" height="686" alt="EMAIL;_03" src="https://github.com/user-attachments/assets/846d3bf1-a93e-443b-99ab-c90c876bbb0c" />
+
 
 
 # JEJUMDEDANIELJULHO2026
@@ -6,8 +6,9 @@
 <img width="1084" height="757" alt="EMAIL;_07" src="https://github.com/user-attachments/assets/51c45ce0-0601-4517-af3d-bf504a3db94f" />
 <img width="1084" height="190" alt="EMAIL;_06" src="https://github.com/user-attachments/assets/1663b85d-77d9-4d6d-859f-85338d92c0c6" />
 <img width="1084" height="314" alt="EMAIL;_04" src="https://github.com/user-attachments/assets/c76dbd10-160c-4443-b6fc-5b74a54c69e7" />
-<img width="1084" height="686" alt="EMAIL;_03" src="https://github.com/user-attachments/assets/1e3f65de-4847-4444-98ab-3d512aa7a9fd" />
+
 <img width="1084" height="1185" alt="EMAIL;_02" src="https://github.com/user-attachments/assets/a8271bdb-7211-4f94-9f51-4ccc3db92369" />
 <img width="1084" height="575" alt="EMAIL;_01" src="https://github.com/user-attachments/assets/13534d92-06da-401d-9400-a237f9b10781" />
 
 <img width="378" height="300" alt="gif (5)" src="https://github.com/user-attachments/assets/231da492-2141-4878-aaac-899377b5a315" />
+<img width="1084" height="686" alt="EMAIL;_03" src="https://github.com/user-attachments/assets/515bda9b-3b4d-4b50-85ce-984c30490946" />
